@@ -2,7 +2,7 @@
 
 - 👋 Greetings, my real name is Pedro, but you can call me falcie (my internet nickname)!
 
-- 📚 I'm trying to learn programming, but my areas of interest are mostly low-level and game development. :D
+- 📚 I'm trying to learn programming, and my areas of interest are mostly low-level and game development. :D
 
 - 🔭 Currently am planning/working on a web-based project to hone my skills both with front-end and gamedev (i also want to make a personal website soon).
 
