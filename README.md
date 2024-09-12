@@ -6,9 +6,7 @@
 
 - 🔭 Currently am planning/working on a fan game with my friends (i also want to make a personal website soon).
 
-- 📫 My socials are @reb0rnheaven_ on Twitter and @reb0rnheaven.bsky.social on Bluesky! Feel free to reach me if you want to talk about anything, just be clear that i don't answer on Bluesky quickly since people aren't that much on there yet so i just forget i have it sometimes lol.
-
-- 🧐 A quick fun fact: i can be rather silly at times :P
+- 📫 I'm currently only on Bluesky (reb0rnheaven.bsky.social) since Twitter has been shut down in Brazil, if you want to reach me out, just send me a message there! 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣾⠿⠿⣷⣦⣀⠀⢀⣀⣀⣤⣤⣤⣤⣤⣄⣀⡀⢀⣤⣶⠿⠿⣷⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣼⡟⢸⠀⠀⠉⠻⠿⠛⠛⠋⠉⠉⠉⠉⠉⠙⠛⠻⠿⠋⠁⠀⠀⢻⣧⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
