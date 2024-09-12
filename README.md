@@ -1,4 +1,4 @@
-### Hi there! (֊⎚w⎚)
+### Hi there! :)
 
 - 👋 Greetings, my real name is Pedro, but you can call me falcie (my internet nickname)!
 
